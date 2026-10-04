@@ -214,4 +214,4 @@ We welcome feedback! You can submit your comments through our official support p
 Start your adventure today and enjoy the thrill of solving mysteries with Sam & Max! Download now!
 
 ---
-**Last updated:** 2026-10-04 08:56:29 UTC
+**Last updated:** 2026-10-04 14:32:16 UTC
